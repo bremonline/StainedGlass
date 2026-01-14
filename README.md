@@ -1,2 +1,2 @@
 # StainedGlass
-For images and Pictures of my Stained Glass Projects
+For images and pictures of my Stained Glass Projects
